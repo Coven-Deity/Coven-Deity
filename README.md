@@ -1,4 +1,9 @@
-## Hi there 👋
+# 𓃶🜏 𝕮𝖔𝖛𝖊𝖓 𝕯𝖊𝖎𝖙𝖞 🜏𓃵
+
+𝔗𝔥𝔢 𝔟𝔢𝔞𝔯𝔢𝔯 𝔬𝔣 𝔫𝔦𝔤𝔥𝔱𝔪𝔞𝔯𝔢𝔰. 𝔏𝔢𝔞𝔳𝔦𝔫𝔤 𝔞 𝔭𝔞𝔱𝔥 𝔬𝔣 𝔡𝔢𝔰𝔱𝔯𝔲𝔠𝔱𝔦𝔬𝔫 𝔟𝔢𝔥𝔦𝔫𝔡. 𝔖𝔠𝔯𝔢𝔞𝔪𝔰 𝔬𝔣 𝔡𝔢𝔞𝔡 𝔡𝔯𝔢𝔞𝔪𝔰 𝔦𝔫𝔰𝔦𝔡𝔢 𝔪𝔶 𝔥𝔢𝔞𝔡. 💞
+
+- Join me on The WitchFire Coven
+## WitchFire: https://discord.gg/rywsb2GnBM
 
 <!--
 **Coven-Deity/Coven-Deity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
